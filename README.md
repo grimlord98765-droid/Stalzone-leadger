@@ -1,4 +1,4 @@
-# Stalzone-leadger
+# Stalzone-leadger - https://cc373938.tw1.ru
 🎮 Добро пожаловать в Stalzone-Ledger Wiki!
 Приветствую всех фанатов Зоны и предприимчивых торговцев! Вы находитесь на официальной вики-странице проекта Stalzone-Ledger.
 
